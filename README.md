@@ -9,7 +9,7 @@
 
 - 📫 How to reach me **ahksase23122002@gmail.com**
 
-- 📄 Know about my experiences [https://drive.google.com/file/d/1gzp2bUySNKioxWbu3RJGW-JvW77CETOj/view?usp=drivesdk)
+- 📄 Know about my experiences [https://drive.google.com/file/d/1JgYgMnfGVXojoAWK7WbX3be8_gQBFpGd/view?usp=sharing)
 
 - ⚡ Fun fact **I like to explore new things**
 
