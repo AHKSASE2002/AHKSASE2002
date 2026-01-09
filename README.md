@@ -9,7 +9,8 @@
 
 - 📫 How to reach me **ahksase23122002@gmail.com**
 
-- 📄 Know about my experiences [[[[https://drive.google.com/file/d/1BBuKcExBg40h2oiJ3Vag2Iql7fASzKNM/view?usp=sharing](https://drive.google.com/file/d/1qbRduTIzfC787UuQ274Chc-IFaaU6DnJ/view?usp=sharing)))]
+- 📄 Experience & Background You can learn more about my background, experiences, and skills by viewing my CV here:  
+👉 [View My CV](https://drive.google.com/file/d/1qbRduTIzfC787UuQ274Chc-IFaaU6DnJ/view?usp=sharing)
 
 - ⚡ Fun fact **I like to explore new things**
 
