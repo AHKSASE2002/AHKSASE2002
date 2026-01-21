@@ -1,6 +1,7 @@
 <h1 align="center">Hi 👋, I'm AbdulRahman Hesham Kamel Seleim</h1>
 <h3 align="center">A Committed and an Enthusiastic student on a Journey in the Realm of Artificial Intelligence, Data Science, and Machine Learning</h3>
 
+<p align="left"> <img src="https://komarev.com/ghpvc/?username=ahksase2002&label=Profile%20views&color=0e75b6&style=flat" alt="ahksase2002" /> </p>
 
 - 🌱 I’m currently learning **Artificial Intelligence (AI), Machine Learning, Deep Learning & Data Science**
 
